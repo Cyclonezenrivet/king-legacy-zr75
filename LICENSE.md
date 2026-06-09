@@ -1,4 +1,4 @@
-
+king legacy Script smart offers the most advanced king legacy Script, with speed and unlimited stamina. Perfect for dominating any match.
 
 
 
